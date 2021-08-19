@@ -4,8 +4,6 @@
 
 
 
-- STROGRONOFF
-
-
-- pISTAGE
+- Strogonoff
+- Frango a passarinha
 - SUSHI
