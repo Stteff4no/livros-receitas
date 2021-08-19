@@ -6,4 +6,4 @@
 
 - Strogonoff
 - Frango a passarinha
-- SUSHI
+- Sushi
